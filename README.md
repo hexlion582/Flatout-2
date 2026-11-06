@@ -229,4 +229,4 @@ FlatOut 2 is offered as a full free version with all features and updates includ
 Don’t miss out on the action—**download FlatOut 2 now** and start your racing journey today!
 
 ---
-**Last updated:** 2026-11-05 19:42:02 UTC
+**Last updated:** 2026-11-06 00:49:49 UTC
